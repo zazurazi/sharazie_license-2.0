@@ -1,0 +1,1 @@
+# sharazie_license-2.0
